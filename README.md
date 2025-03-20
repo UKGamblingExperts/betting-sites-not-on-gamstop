@@ -7,9 +7,9 @@ UK Betting Sites not on Gamstop provide UK players with reputable online sportsb
 
 | Rank | Bookmaker | Rating | Welcome Bonus |
 |------|--------|--------|---------------|
-| #1 | [**SOMBREROSPINS**](https://bit.ly/sombrerospins-uk) | 4.9/5:star: | £20 Freebet |
-| #2 | [**NALUCASINO**](https://bit.ly/nalucasino-uk) | 4.8/5:star: | - |
-| #3 | [**GXSPIN**](https://bit.ly/gxspin-uk) | 4.7/5:star: | - |
+| #1 | [**SOMBREROSPINS**](https://bit.ly/sombrerospins-ukk) | 4.9/5:star: | £20 Freebet |
+| #2 | [**NALUCASINO**](https://bit.ly/nalucasino-ukk) | 4.8/5:star: | - |
+| #3 | [**GXSPIN**](https://bit.ly/gxspin-ukk) | 4.7/5:star: | - |
 
 ## Top 3 Non Gamstop Bookmakers for UK Players
 
